@@ -1,3 +1,4 @@
+Please add me as a Agent Developer [Published] on Discord, my discord username is doctorwho7#6844
 # Chain Reorganized block agent
 
 ## Описание
